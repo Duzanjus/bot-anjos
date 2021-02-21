@@ -177,7 +177,7 @@ Uso : mande ${prefix}ytmp4 e o link do vídeo do youtube
 
 😎Contate meu dono ~anjos caso tenha alguma dúvida: wa.me/5511932300710
 
-'ঔৣ☬✞~anjos~ঔৣ☬✞🌞🌊✨🌙Wa.me/5511932300710🌞🌊✨🌙
+'ঔৣ☬✞~ *anjos* ~ঔৣ☬✞🌞🌊✨🌙 Wa.me/5511932300710🌞🌊✨🌙
 ~contato do adm~
 
 `
